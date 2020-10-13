@@ -1,1 +1,3 @@
-# We-will-do-are-best-when-you-dream-it
+Tim Said: # We-will-do-are-best-when-you-dream-it....  
+Josh said:That means you can't do your best when you dream it but you do when you do.
+Luis said: I got you. Know it makes perfect sense.
